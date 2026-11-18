@@ -39,7 +39,7 @@ Engenharia de Computação | FACET - UFGD
 ╰───────────────────────────────────────────────────────────────────────╯
 ```
 
-**Participação remota:** A definir (link de transmissão será disponibilizado oportunamente).
+**Participação remota:** link: https://meet.google.com/jua-yowx-ird
 
 ---
 
